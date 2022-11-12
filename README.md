@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on RedSand.<br>🌱 I’m currently learning more about Web Development.<br>🤔 I’m looking for help with Exploring New Technologies.<br>💬 Ask me about any tech-related stuff.<br>📫 How to reach me: Email - Leo.tran.ht@gmail.com<br>
+🔭 I’m currently working on RedSand.<br>🌱 I’m currently learning more about Web Development.<br>🤔 I’m looking for help with Exploring New Technologies.<br>📫 How to reach me: Email - Leo.tran.ht@gmail.com<br>
 
 
 ## 🌐 Socials:
